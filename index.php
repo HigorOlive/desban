@@ -1,0 +1,1 @@
+<a class="_36or _2y_c _68mu _2z07 _2z0b" id="submit" href="mailto:android_web@support.whatsapp.com?subject=Suporte%20para%20o%20WhatsApp%20Messenger&amp;body=Meu numero foi banido injutamente e necessito de falar com meus amigos e parentes, se eu nao obter repostas irei migrar para o telegram.%0A%0A+552199053515" rel="noopener" role="button">Desbanir numero do dark</a>
